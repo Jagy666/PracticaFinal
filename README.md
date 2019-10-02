@@ -1,2 +1,2 @@
 # PracticaFinal
-Esta esla parte de modelo
+John Gonzalez Yanez
